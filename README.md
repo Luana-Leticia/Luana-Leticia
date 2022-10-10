@@ -9,5 +9,5 @@ Também gosto de passear, malhar e assistir filmes e documentários nas horas va
 🌱 Fiz um minicurso de Fronted com o Woman Who Code e de Backend com a equipe do Reprograma. <3
 
 📫 Link de minhas redes sociais: 
-Linkedin: https://www.linkedin.com/in/luanasilva-edf/
+Linkedin: https://www.linkedin.com/in/luanaleticiasilva/
 
